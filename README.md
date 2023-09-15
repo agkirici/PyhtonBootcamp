@@ -1,1 +1,1 @@
-# PyhtonBootcamp projects coming soon 🚀
+# PyhtonBootcamp projects is coming soon 🚀
